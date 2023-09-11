@@ -2,9 +2,9 @@
 
 Many prophecy teachers claim, “Earthquakes are increasing, and it’s just another sign of the times.” If this claim were valid, it would have the potentially undeniable implication that we are living in the days of Jesus’ return, as He taught in Matthew 24:3, 7-8:
 
-> “Later, Jesus sat on the Mount of Olives. His disciples came to him privately and said, ‘Tell us, when will all this happen? What sign will signal your return and the end of the world?’
+> "Later, Jesus sat on the Mount of Olives. His disciples came to him privately and said, 'Tell us, when will all this happen? What sign will signal your return and the end of the world?'
 > 
-> 'Nation will go to war against nation, and kingdom against kingdom. There will be famines and earthquakes in many parts of the world. But all this is only the first of the birth pains, with more to come.'”
+> 'Nation will go to war against nation, and kingdom against kingdom. There will be famines and earthquakes in many parts of the world. But all this is only the first of the birth pains, with more to come.'"
 
 Generally speaking, prophecy scholars have interpreted Jesus’ words to mean that earthquakes will increase in both frequency and severity in the days of calamity leading up to His second coming. 
 
