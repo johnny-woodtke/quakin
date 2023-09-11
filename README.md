@@ -9,4 +9,4 @@ Generally speaking, prophecy scholars have interpreted Jesus’ words to mean th
 
 However, when teachers claim this is happening today, they seldom provide graphs or data to reinforce their claims. I’ve seen zero charts on the strength of earthquakes and precisely one graph on the frequency of earthquakes throughout my few years of eschatological research; still, no citations, data, or links were provided to verify the accuracy. 
 
-Today, that changes.
+Today, [that changes](https://open.substack.com/pub/godsreveal/p/earthquakes-the-beginning-of-the?r=qoy4w&utm_campaign=post&utm_medium=web).
